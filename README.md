@@ -1,3 +1,3 @@
 ## Helloo !💌
 
-🫧 currently...: figuring it out
+🫧 currently... : figuring it out
